@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on discord server
 - 📫 How to reach me - Join my discord server or message me on ig!
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i like coffe 
+- ⚡ Fun fact: I like coffe 
 
 <!---
 andyxwq/andyxwq is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
