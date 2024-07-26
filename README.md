@@ -2,7 +2,7 @@
 - 👀 I’m interested in tech
 - 🌱 I’m currently learning live
 - 💞️ I’m looking to collaborate on discord server
-- 📫 How to reach me ...
+- 📫 How to reach me - Join my discord server or message me on ig!
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i like coffe 
 
