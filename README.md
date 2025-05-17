@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @andyxwq
-- 👀 I’m interested in tech
-- 🌱 I’m currently learning to live
-- 💞️ I’m looking to collaborate on a discord server app
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning to create batch, html, and apps
+- 💞️ I’m looking to collaborate on a program/app
 - 📫 How to reach me - Join my discord server or message me on ig!
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like coffe 
